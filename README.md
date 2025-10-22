@@ -12,8 +12,10 @@
 <br>
 --------------------------------------------
 <br><br>
-hii! please check out @decapitation-bonus,
-<br> which is my main acc
+
+hii! please check out [@decapitation-bonus](https://github.com/decapitation-bonus),
+<br>which is my main acc
+
 <br>
 <br>
 --------------------------------------------
