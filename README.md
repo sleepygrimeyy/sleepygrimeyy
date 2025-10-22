@@ -14,11 +14,10 @@
 <br><br>
 
 hii! please check out [@decapitation-bonus](https://github.com/decapitation-bonus),
-<br>which is my main acc
 
-<br>
-<br>
---------------------------------------------
+which is my main acc
+<br><br>
+\--------------------------------------------
 <br><br>
 
 ![](https://files.catbox.moe/gthfdr.jpg)
