@@ -12,7 +12,12 @@
 <br>
 --------------------------------------------
 <br><br>
- 
+hii! please check out @decapitation-bonus,
+<br> which is my main acc
+<br>
+<br>
+--------------------------------------------
+<br><br>
 
 ![](https://files.catbox.moe/gthfdr.jpg)
 
