@@ -1,29 +1,10 @@
-<div align="center">
-<br>
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
-<br><br>
+<div align=center>
+please follow/check out my main account:
+  
+  [@decapitation-bonus](https://github.com/decapitation-bonus)!
 
-ꕀ﹒[rentry](https://rentry.co/d1xon)   ノ   [atabook](https://jinkman.atabook.org/)    ₊    𐂯
+  <br><br><br>
+  i love rick, carl, daryl, maggie, glenn, michonne, and rosita ^_^ (and an honourable mention to beth)
+  <br><br>
 
-
-
-⋮ ⌗﹒[strawpage](https://decapitation-bonus.straw.page)    ₊  ┆ ♪
-
-<br>
---------------------------------------------
-<br><br>
-
-hii! please check out [@decapitation-bonus](https://github.com/decapitation-bonus),
-
-which is my main acc
-<br><br>
-\--------------------------------------------
-<br><br>
-
-![](https://files.catbox.moe/gthfdr.jpg)
-
-‶ I recognize you, but I'm not afraid of you... not anymore. ‶
-
-<br><br>
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
-</div>
+  ![cast of the walking dead](https://files.catbox.moe/nqvb9h.jpeg)
